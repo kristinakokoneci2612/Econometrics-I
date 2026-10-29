@@ -1,2 +1,0 @@
-# Econometrics-I-
-Econometrics PS
